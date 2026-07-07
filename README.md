@@ -362,9 +362,9 @@ The knowledge gained throughout this training serves as a solid foundation for p
 
 ---
 
-LinkedIn: [
+LinkedIn: [https://www.linkedin.com/feed/update/urn:li:activity:7480190771904643072/]
 
-X: [
+X: [https://x.com/charisma1385/status/2074425482771144756]
 
 ---
 
